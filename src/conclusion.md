@@ -1,5 +1,8 @@
 # Conclusion
 
+Chapter 9: Conclusion
+=====================
+
 Congratulations! You have completed "How to Develop Emotional Intelligence and Improve Your Workplace Relationships." In this chapter, we provide a summary of the key points covered throughout this book and offer final thoughts on the importance of developing emotional intelligence for improved workplace relationships.
 
 Summary of Key Points
