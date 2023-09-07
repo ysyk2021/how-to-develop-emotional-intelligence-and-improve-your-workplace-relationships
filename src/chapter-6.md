@@ -1,5 +1,3 @@
-Chapter 5: Managing Emotions and Relationships
-==============================================
 
 Managing emotions and relationships is a critical component of emotional intelligence, involving the ability to regulate one's own emotions and effectively navigate social situations. In this chapter, we will explore strategies for managing emotions and relationships in the workplace, including regulating emotions in challenging situations, communicating effectively, and resolving conflicts constructively.
 

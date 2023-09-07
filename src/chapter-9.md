@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the workplace continues to evolve, the importance of emotional intelligence in promoting positive outcomes and building effective relationships will only increase. In this chapter, we will explore future directions for emotional intelligence development and address new challenges in promoting emotional intelligence.
 

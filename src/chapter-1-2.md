@@ -1,5 +1,3 @@
-Overview of Emotional Intelligence
-================================================
 
 Emotional intelligence is a set of skills and abilities that involve recognizing and understanding emotions in oneself and others, and using this understanding to manage relationships effectively. In this book, we will explore the importance of emotional intelligence in the workplace and provide practical strategies for developing these skills.
 

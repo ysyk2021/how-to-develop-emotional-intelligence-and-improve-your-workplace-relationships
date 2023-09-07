@@ -1,5 +1,3 @@
-Recognizing Personal Triggers and Patterns
-==============================================================================
 
 Self-awareness is a critical component of emotional intelligence, involving the ability to recognize and understand one's own emotions, strengths, weaknesses, and values. In this chapter, we will explore strategies for building self-awareness in the workplace, including recognizing personal triggers and patterns.
 

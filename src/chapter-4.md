@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Self-awareness is a critical component of emotional intelligence, as it involves understanding one's own emotions and reactions. By building self-awareness, individuals can better manage their emotions and communicate effectively with others in the workplace. In this chapter, we will explore strategies for building self-awareness.
 

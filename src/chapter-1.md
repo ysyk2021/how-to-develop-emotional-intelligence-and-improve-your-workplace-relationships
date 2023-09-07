@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Welcome to "How to Develop Emotional Intelligence and Improve Your Workplace Relationships." This book is designed to help you develop emotional intelligence and enhance your relationships in the workplace. In this chapter, we will discuss the purpose of the book, provide an overview of emotional intelligence, and explain why developing emotional intelligence is essential for workplace relationships.
 

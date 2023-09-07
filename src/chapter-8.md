@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays a critical role in promoting emotional intelligence development and building positive workplace relationships. In this chapter, we will explore the role of leadership in supporting emotional intelligence development and provide strategies for modeling emotionally intelligent behaviors and addressing challenges and setbacks.
 

@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Emotional Intelligence on Workplace Relationships
-==========================================================================
 
 Emotional intelligence (EI) plays a significant role in workplace relationships. Employees with high EI are better able to manage their own emotions and communicate effectively with others, leading to better teamwork and more positive workplace relationships. In this chapter, we will explore the impact of emotional intelligence on workplace relationships.
 

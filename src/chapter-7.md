@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Implementing emotional intelligence strategies is critical for improving workplace relationships and promoting positive outcomes. In this chapter, we will explore strategies for implementing emotional intelligence in the workplace, including overcoming barriers to effective implementation and measuring the effectiveness of emotional intelligence strategies.
 
