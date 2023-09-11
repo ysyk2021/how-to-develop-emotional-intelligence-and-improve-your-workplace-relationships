@@ -1,5 +1,4 @@
-Chapter 1: What is Emotional Intelligence?
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence (EI) is the ability to recognize, understand, and manage our own emotions, as well as recognizing and understanding the emotions of others. It involves using this awareness to guide our thoughts, actions, and interactions with others. This chapter explores the key components of emotional intelligence and their importance in developing effective workplace relationships.
 

@@ -1,5 +1,4 @@
-Chapter 10: Practicing Self-Reflection and Mindfulness
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-reflection and mindfulness are powerful tools for developing emotional intelligence, enhancing self-awareness, and improving workplace relationships. This chapter explores the benefits of self-reflection and mindfulness practices and provides strategies for incorporating them into your daily life.
 

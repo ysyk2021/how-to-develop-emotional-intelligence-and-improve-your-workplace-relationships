@@ -1,5 +1,4 @@
-Chapter 11: Understanding the Perspectives of Others
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empathy and understanding are essential components of emotional intelligence that can greatly improve workplace relationships. This chapter explores the importance of understanding the perspectives of others and provides practical strategies for developing this crucial skill.
 

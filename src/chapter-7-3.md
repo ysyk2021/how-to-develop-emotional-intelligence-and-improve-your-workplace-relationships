@@ -1,5 +1,4 @@
-Chapter 10: Measuring the Effectiveness of Emotional Intelligence Strategies
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing emotional intelligence skills can have a significant impact on workplace relationships and overall job satisfaction. However, it is challenging to measure the effectiveness of these strategies. This chapter explores different evaluation methods to assess the effectiveness of emotional intelligence strategies in the workplace.
 

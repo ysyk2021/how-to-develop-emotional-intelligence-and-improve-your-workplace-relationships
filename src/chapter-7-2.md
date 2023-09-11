@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Barriers to Effective Implementation
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing emotional intelligence strategies in the workplace can sometimes be challenging due to various barriers. This chapter explores common obstacles to developing emotional intelligence and provides practical solutions for overcoming them.
 

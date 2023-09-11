@@ -1,5 +1,4 @@
-Chapter 15: Modeling Emotionally Intelligent Behaviors
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to develop emotional intelligence and improve workplace relationships, modeling emotionally intelligent behaviors plays a crucial role. This chapter explores the importance of modeling these behaviors and provides guidance on how to effectively demonstrate them.
 

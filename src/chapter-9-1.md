@@ -1,5 +1,4 @@
-Chapter 13: Innovations in Emotional Intelligence Development
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The field of emotional intelligence continues to evolve, and new innovations are emerging to enhance its development. This chapter explores some of the recent advancements and innovative approaches to developing emotional intelligence in the workplace.
 

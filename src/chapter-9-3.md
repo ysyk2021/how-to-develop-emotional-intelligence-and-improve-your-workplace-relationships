@@ -1,5 +1,4 @@
-Chapter 15: Looking Ahead to the Future of a Workforce with Improved Workplace Relationships
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As the development of emotional intelligence continues to shape workplace relationships, the future holds great promise. This chapter explores the potential outcomes and impacts of an improved workforce with enhanced emotional intelligence.
 

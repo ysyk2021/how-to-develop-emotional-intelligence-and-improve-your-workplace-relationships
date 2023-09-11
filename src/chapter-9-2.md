@@ -1,5 +1,4 @@
-Chapter 14: Addressing New Challenges in Promoting Emotional Intelligence
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As the workplace landscape continues to evolve, new challenges arise in promoting emotional intelligence. This chapter explores some of the emerging challenges and provides strategies for addressing them to foster emotional intelligence development and improve workplace relationships.
 

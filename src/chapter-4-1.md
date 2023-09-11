@@ -1,5 +1,4 @@
-Chapter 5: Understanding Your Own Emotions and Reactions
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding and managing your own emotions and reactions is a fundamental aspect of developing emotional intelligence and building positive workplace relationships. This chapter explores strategies for gaining self-awareness, recognizing emotions, and effectively managing personal reactions.
 

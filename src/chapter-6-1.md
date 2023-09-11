@@ -1,5 +1,4 @@
-Chapter 9: Regulating Emotions in Challenging Situations
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the midst of challenging situations, the ability to regulate our emotions is crucial for maintaining composure, making sound decisions, and fostering positive workplace relationships. This chapter explores effective strategies for regulating emotions, managing stress, and promoting emotional well-being.
 

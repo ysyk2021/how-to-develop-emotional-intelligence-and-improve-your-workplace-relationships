@@ -1,5 +1,4 @@
-Chapter 17: The Role of Leadership in Supporting Emotional Intelligence Development
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership plays a crucial role in fostering emotional intelligence and improving workplace relationships. This chapter explores how leaders can support the development of emotional intelligence within their teams and create a culture that values emotional intelligence.
 

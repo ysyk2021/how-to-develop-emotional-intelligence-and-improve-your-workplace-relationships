@@ -1,5 +1,4 @@
-Chapter 15: Communicating Effectively
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is an essential component of emotional intelligence and critical to building positive workplace relationships. This chapter explores strategies for communicating effectively, including active listening, constructive feedback, and managing conflict.
 

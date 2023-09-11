@@ -1,5 +1,4 @@
-Chapter 12: Understanding the Impact of Emotional Intelligence on Workplace Relationships
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence plays a crucial role in shaping workplace relationships and fostering a positive and productive work environment. This chapter explores the profound impact emotional intelligence has on various aspects of workplace relationships.
 

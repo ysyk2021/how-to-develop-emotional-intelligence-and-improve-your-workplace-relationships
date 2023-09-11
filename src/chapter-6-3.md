@@ -1,5 +1,4 @@
-Chapter 8: Resolving Conflicts Constructively
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict is an inevitable part of any workplace, but how we handle conflicts can significantly impact our emotional intelligence and workplace relationships. This chapter explores strategies for resolving conflicts constructively, fostering understanding, and promoting collaboration.
 

@@ -1,5 +1,4 @@
-Chapter 7: Demonstrating Compassion and Understanding
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Compassion and understanding are essential elements of emotional intelligence that can greatly enhance workplace relationships. This chapter explores the importance of demonstrating compassion and understanding towards others and provides strategies for incorporating these qualities into your interactions.
 
